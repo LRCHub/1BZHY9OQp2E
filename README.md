@@ -1,0 +1,42 @@
+# Da-iCE – Monster
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+無我夢中 無心で駆け巡り壊してた
+このまま 浮世で真価が問われるなら
+楽観的に客観的に去った敵に Clap
+I got it
+見つけた拓けた You know what?
+次の一手が You are keep out
+一瞬の隙で決める I'm a shooter
+未だ見ぬ このステージを
+絶妙な Bounce と強烈な劣等感で Payback
+Get ready?
+築いてく この先の Clear な Top
+The world over
+気づいてく この先を感覚で
+Flick!Flick!
+まだ高ぶる Emotion 味わって
+安定な法則蹴っ飛ばせ ただの機巧
+Flick!Flick!
+足りない Imagination もっと踊って
+Count on me 感動観たい?
+Bring it on
+ここから Got underway
+Error も正解に軌道変えていく
+This is who I am
+Gonna step up その未来図を
+五角形 Balance と超究極な一手で Fight back
+Get ready?
+築いてく この先の Clear な Top
+The world over
+気づいてく この先を感覚で
+Flick!Flick!
+まだ高ぶる Emotion 味わって
+安定な法則蹴っ飛ばせ ただの機巧
+Flick!Flick!
+足りない Imagination もっと踊って
+Count on me 感動観たい?
+Bring it on...
+```
